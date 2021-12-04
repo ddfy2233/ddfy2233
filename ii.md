@@ -1,1 +1,0 @@
-[点我下载](https://gh.api.99988866.xyz/https://github.com/ddfy2233/CompleteSuicideManual-Zh_CN/blob/master/CompleteSuicideManual-Zh_CN.pdf)|[点我下载](https://hub.fastgit.org/ddfy2233/CompleteSuicideManual-Zh_CN/blob/master/CompleteSuicideManual-Zh_CN.pdf)
